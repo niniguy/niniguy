@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @niniguy
+- 👀 Interesting in ukuleling, eating ananas pizzas, and now trying to learn code. 
+- 🌱 I’m currently working in a gas company, actually bored of it and trying to go for another job.
+- 💞️ I’m looking to collaborate on ... idk : Already i'll try to learn a bit first ...
+- 📫 How to reach me -> in my DMs baby
